@@ -1,2 +1,2 @@
 # OnlyClones.....
-Here! you only get to see about the clone of some Company's Apps&lt;>
+Here! you only get to see about the clones of some Company's Apps&lt;>
